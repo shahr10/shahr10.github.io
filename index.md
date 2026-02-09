@@ -56,7 +56,7 @@ I have experience across **academic research and aerospace industry internships*
 
 ## Resume
 
-📄 **[Download Resume (PDF)](Rahi_Shah_CV complete.pdf)** 
+📄 **[Download Resume (PDF)](Rahi Shah CV complete.pdf)** 
 _Last updated: February 2026_
 
 ---
